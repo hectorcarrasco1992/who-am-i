@@ -25,3 +25,16 @@
 ### Favorite Rappers 
 
 1. Jay-Z 
+2. Nas-Favorite song
+    [<https://www.youtube.com/watch?v=hxce_qvhi5I]>
+3. J Cole
+4. Eminem
+5. Andre 3000
+
+
+---
+
+
+
+
+
