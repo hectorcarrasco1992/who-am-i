@@ -12,3 +12,16 @@
 ---
 
 
+### Education
+
+* High School for Environmental Studies
+* John Jay College for Criminal Justice
+* Code Immersives (currently enrolled)
+
+
+---
+
+
+### Favorite Rappers 
+
+1. Jay-Z 
