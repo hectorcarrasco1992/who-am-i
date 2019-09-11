@@ -44,3 +44,19 @@
  * Attack on Titan ![alt text](Screen&#32;Shot&#32;2019-09-10&#32;at&#32;9.00.46&#32;PM.png)
 
 
+---
+
+
+Favorite Sports Teams
+
+        NY Mets- I know we suck but I love them.
+
+        Brooklyn Nets- Yes, the Nets have also struggled but next year is our year.
+
+        New England Patriots- Been a fan since 2001 so no not bandwagon....6 chips.
+
+
+        ---
+
+
+        
