@@ -61,4 +61,4 @@ Favorite Sports Teams
 
 ### _So Who Am I?_
 
-    I'm a rap nerd and an anime geek who loves rooting for the underdogs, but who also roots for a dominating football team. I'm also slightly sarcastic.
+        I'm a rap nerd and an anime geek who loves rooting for the underdogs, but who also roots for a dominating football team. I'm also slightly sarcastic.
